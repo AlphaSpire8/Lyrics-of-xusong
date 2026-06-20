@@ -7,4 +7,47 @@
 
 ## 歌词
 
-> 版权提示：歌词属于受版权保护的文本。请在取得授权或由权利人/维护者提供后，在此处补充完整歌词。
+作词: 许嵩
+作曲: 许嵩
+编曲: 陈伟伦
+制作人: 许嵩
+谈什么风格 论什么独特
+说实话在我眼里全是有的没的撒哈拉
+名相的造作 心识的困惑
+还有多少人尝试侧耳倾听自己呼吸和脉搏
+Show me show me show me
+让我看到你不是热衷追逐潮流的那种人
+Show me show me show me
+让我看到你会做忠于自己的选择
+Play with style
+Remember to follow your heart
+ Play with style
+Then you can be the only winner
+Play with style
+Remember to follow your heart
+ Play with style
+Then you can be the only winner
+谈什么风格 论什么独特
+说实话在我眼里全是有的没的撒哈拉
+名相的造作 心识的困惑
+还有多少人尝试侧耳倾听自己呼吸和脉搏
+Show me show me show me
+让我看到你不是热衷追逐潮流的那种人
+Show me show me show me
+让我看到你会做忠于自己的选择
+Play with style
+Remember to follow your heart
+ Play with style
+Then you can be the only winner
+Play with style
+Remember to follow your heart
+ Play with style
+Then you can be the only winner
+Play with style
+Remember to follow your heart
+ Play with style
+Then you can be the only winner
+Play with style
+Remember to follow your heart
+ Play with style
+Then you can be the only winner
